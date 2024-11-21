@@ -16,23 +16,3 @@ I have Updated Code for Indian Roads(Rural) Detection System. If you want then m
 
 Note : Just download Code and run on your IDE 
 
-## Hi there, 
-
-If you need PPT, Research Paper, Project Code and Report of this Project Mail me.
-
-If you need any help regarding College project contact me. #Free_Discussion
-
-### Contact me:
-
-WhatsApp: +91 9310631437 (Helping 24*7)
-
-Gmail: vatshayan007@gmail.com
-
- #Free_Discussion 
- 
- #open_source 
- 
- #free_explanation
- 
-### Advance Road Pavement Project Youtube Video : https://www.youtube.com/watch?v=BEUFt6_UjYM
-
